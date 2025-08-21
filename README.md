@@ -1,5 +1,5 @@
-# Gaminfy Ti 84 Plus CE Programs UNOFFICAL
-Self-explanitory!
+# Gamify Ti 84 Plus CE Programs UNOFFICAL
+Self-explanitory! Whoops i just mispelt "gamify." Lol!
 
 PLEASE NOTIFY ME @ https://www.skool.com/@nicholas-volta-2410?g=gamifysat if anything's broken.
 
