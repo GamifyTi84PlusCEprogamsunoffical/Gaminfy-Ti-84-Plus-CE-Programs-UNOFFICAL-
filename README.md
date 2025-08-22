@@ -1,4 +1,4 @@
-# Gamify Ti 84 Plus CE Programs UNOFFICAL
+# Gamify Ti 84 Plus CE Programs UNOFFICIAL
 Self-explanitory! Whoops i just mispelt "gamify." Lol!
 
 Programs include:
